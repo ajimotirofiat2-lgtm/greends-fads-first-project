@@ -1,1 +1,1 @@
-Take your tiem, buy stmps and boks, and bring a beverge and botles for the duccks.
+Take your tiem, buy stmps and boks, and bring a beverage and bottles for the ducks.
