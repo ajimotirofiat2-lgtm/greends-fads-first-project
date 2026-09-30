@@ -1,2 +1,2 @@
-Take your time, buy stamps and books, and bring a beverage and botles for the duccks.
+Take your time, buy stamps and books, and bring a beverage and bottles for the ducks.
 
